@@ -11,7 +11,7 @@ Various Media outlets endorce the Ukrainian Invasion hense the websites listed o
 
 Please share this far and wide and keep the script running, use a VPS if you need to!
 
-#slava ukraini
-#slava ukraini
-#slava ukraini
-#slava ukraini
+# slava ukraini 🇺🇦
+# slava ukraini 🇺🇦
+# slava ukraini 🇺🇦
+# slava ukraini 🇺🇦
